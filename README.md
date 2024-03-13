@@ -19,7 +19,6 @@ Pornoportale:
 - Pornoente.tv (MP4-Videos)
 - Superporn.com (MP4-Videos)
 - Xgroovy.com (MP4-Vieos)
-- Xnxx.com (MP4-Videos)
 - Youjizz.com (MP4-Videos)
 
 Weitere Downloads werden beim nächsten Update hinzugefügt.
