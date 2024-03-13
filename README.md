@@ -22,3 +22,10 @@ Pornoportale:
 - Youjizz.com (MP4-Videos)
 
 Weitere Downloads werden beim nächsten Update hinzugefügt.
+
+
+
+-------------------------
+
+
+YannickDownloader speichert und sammelt keinerlei Daten und Cookies. Der Datenschutz steht an erster Stelle!
